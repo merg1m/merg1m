@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @merg1m
+- Discord: Mergim#1019
